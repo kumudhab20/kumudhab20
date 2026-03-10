@@ -14,5 +14,12 @@ I'm wanted to became a software enginnering <br>I'm diploma student.<br>I'm  cur
 
 ---
 [![](https://visitcount.itsvg.in/api?id=kumudhab20&icon=0&color=11)](https://visitcount.itsvg.in)
+✨ Quote
+
+"Dream big, start small, but never stop learning."
+
+📫 Contact With Me
+
+📧 Email: kumu
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
